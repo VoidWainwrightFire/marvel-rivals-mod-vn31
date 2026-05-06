@@ -1,4 +1,4 @@
-
+Get the ultimate marvel rivals mod menu wh with marvel rivals mod menu hidden Wall Detection: enemy movement predictor & hero synergy boost. Featuring enemy movement predictor and
 
 
 
